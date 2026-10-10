@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on ... any types of projects!
 - 🤔 I’m looking for help with ... nothing in particular, looking for individuals to code with and learn together!
 - 💬 Ask me about ... anything.
-- 📫 How to reach me: ... discord: Caedus#4024
+- 📫 How to reach me: ... discord: Caedus
 - ⚡ Fun fact: ... seeking pumpers.
 
 ### THANKS! 👋
